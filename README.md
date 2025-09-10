@@ -1,2 +1,2 @@
 # Strukturinis2025
-LIETUVA turejo laimeti
+LIETUVA turejo laimeti ir pralaimejo
